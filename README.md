@@ -1,1 +1,0 @@
-# NAPLEX-Drug
